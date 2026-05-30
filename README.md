@@ -1,0 +1,1 @@
+# thiranex-retail-sales-project
